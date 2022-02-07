@@ -6,7 +6,7 @@
 ![zerotwodance](https://external-content.duckduckgo.com/iu/?u=https%3A%2F%2Fthumbs.gfycat.com%2FPortlyOrneryGreatdane-max-1mb.gif&f=1&nofb=1)
 
 
-#### Languages I know:
+#### Skills I know:
  - Python
  - Bash
 #### Currently Learning:
